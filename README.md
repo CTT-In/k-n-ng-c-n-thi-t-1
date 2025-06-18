@@ -1,1 +1,1 @@
-# k-n-ng-c-n-thi-t-1
+Kỹ năng cần thiết
